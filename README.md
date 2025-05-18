@@ -3,6 +3,7 @@
 Osaka  
 Toyonaka, 560-0043, Japan 
 Email: u957000h@ecs.osaka-u.ac.jp | Phone: +81-70-2311-6774
+
 LinkedIn: https://www.linkedin.com/in/masanari-miyamoto-505b37364/ | GitHub: https://github.com/Masanari-M
 
 ---
